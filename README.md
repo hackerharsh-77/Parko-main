@@ -11,4 +11,4 @@ Video Link : https://drive.google.com/file/d/1lZC4J0V3DYHTpli7P8uzocAAnvDPmpkn/v
 
 Presentation Link : https://www.canva.com/design/DAE9efbYwhg/7GrcFXqabtXhMNQ_boxUeg/view?utm_content=DAE9efbYwhg&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
 
-Collaborators : Aindrila Ray , Harsh Ranjan , Sonakshi Mugrai , Aryan Singh
+Collaborators : Aindrila Ray , Harsh , Sonakshi Mugrai , Aryan Singh
